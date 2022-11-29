@@ -5,7 +5,7 @@
 - 📫 Me pueden encontrar en:
 - Facebook: https://www.facebook.com/alejandromturtola
 - Instagram: https://www.instagram.com/alejandromturtola/
-- Twitter: https://twitter.com/AleTurtola
+- Twitter: https://twitter.com/AleMTurtola
 - LinkedIn: https://www.linkedin.com/in/alejandro-turtola/
 
 <!---
